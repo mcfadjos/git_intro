@@ -1,3 +1,3 @@
 Joseph McFadden
 mcfadjos@oregonstate.edu
-brown
+brown or tan
